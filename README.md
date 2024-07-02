@@ -1,1 +1,1 @@
-# practice2
+https://paste.rs/8wYpN
